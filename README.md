@@ -5,4 +5,4 @@
 
 ## Subscribe My Blog
 
-Vhttp://shahjadatalukdar.wordpress.com/
+http://shahjadatalukdar.wordpress.com/
